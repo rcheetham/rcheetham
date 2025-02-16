@@ -19,7 +19,6 @@ I sold Azavea in 2023 to Element 84 where I served as the Chief Strategy Officer
 
 ### 🤔 I’m looking for help with
 - Tips on what's happening the space, remote sensing, and geospatial technology industries in Japan
-- 
 
 ### 💬 Ask me about 
 - Geospatial technology
